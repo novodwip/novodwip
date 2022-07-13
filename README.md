@@ -1,5 +1,10 @@
 
-- 📫  email: techtalk@novod.net
+- 📫  Greg Boulet
+Information Technology Consultant
+Technical Services
+Integromedia Corporation
+"the 1-Stop Shopping for Your Information Technology Needs!"
+techtalk@novod.net
 Toll Free 1 800-698-4809, Direct (236) 795-6715 (mobile, instant message)
 
 <!---
